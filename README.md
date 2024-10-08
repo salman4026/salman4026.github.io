@@ -1,7 +1,1 @@
-AAAAAAA
-A
-a
-AAA
 
-A
-A
